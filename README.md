@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... Narandan29@gmail.com
 - 😄 Pronouns: ... He/him
 - ⚡ Fun fact: ... Love to Dance when I am taking the shower.
+- 💕 Marital Status: ... Single
